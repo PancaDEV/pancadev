@@ -1,5 +1,5 @@
 # 💫 About Me:
-🙋🏽‍♂️ Olá, me chamo Luiz e tenho 20 anos.<br>💻 Atualmente estou cursando Engenharia de Software.
+🙋🏽‍♂️ Olá, me chamo Luiz e tenho 23 anos.<br>💻 Atualmente estou cursando Engenharia de Software.
 
 
 ## 🌐 Socials:
